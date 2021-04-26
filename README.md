@@ -1,0 +1,1 @@
+# 11-122-environment-and-society-fall-2002_fc975ad9bbc2420fa31a6e79634baeeb
